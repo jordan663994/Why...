@@ -1,2 +1,1 @@
-# Why...
-this will be one big nft
+DO NOT UPLOAD THIS TO MAINNET
